@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mansoor2619
 - 👀 I’m interested in ...programming
-- 🌱 I’m currently learning ...high school
+- 🌱 I’m currently learning ...college
 - 💞️ I’m looking to collaborate on ...coding
 - 📫 How to reach me ...through my profile
 - 😄 Pronouns: ...MS
